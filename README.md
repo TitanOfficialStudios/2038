@@ -11,4 +11,4 @@ Clause 3: Making variations of this product based upon inappropriate content is 
 
 Clause 4: What is deemed 'inappropriate' is the following: Pornographic Content, and Racial/Discriminatory Content.
 
-Clause 5: If someone deems something Discriminatory, it will need to be manualy reviewed by the Titan Law Team. 
+Clause 5: If someone deems something Discriminatory, it will need to be manually reviewed by the Titan Law Team.
